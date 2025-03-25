@@ -1,6 +1,3 @@
 ## 𝐆𝐫𝐞𝐞𝐭𝐢𝐧𝐠𝐬, 𝐟𝐫𝐢𝐞𝐧𝐝𝐬! >:𝐃
-<picture>
- <source media="(prefers-color-scheme: dark)" srcset="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c350de11-8c52-4be4-bc28-608bfd99bd53/d84rfzh-619bad1a-261f-4ea3-9e8e-3293ad1978b6.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzNTBkZTExLThjNTItNGJlNC1iYzI4LTYwOGJmZDk5YmQ1M1wvZDg0cmZ6aC02MTliYWQxYS0yNjFmLTRlYTMtOWU4ZS0zMjkzYWQxOTc4YjYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.rMt0oKt9BvnE0fjyq254SoVb5VgouyzxVqIWX-_aNBo">
- <source media="(prefers-color-scheme: light)" srcset="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c350de11-8c52-4be4-bc28-608bfd99bd53/d84rfzh-619bad1a-261f-4ea3-9e8e-3293ad1978b6.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzNTBkZTExLThjNTItNGJlNC1iYzI4LTYwOGJmZDk5YmQ1M1wvZDg0cmZ6aC02MTliYWQxYS0yNjFmLTRlYTMtOWU4ZS0zMjkzYWQxOTc4YjYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.rMt0oKt9BvnE0fjyq254SoVb5VgouyzxVqIWX-_aNBo">
- </picture>
+<img src="https://cdn1.picturebb.com/1/2025/03/25/G72Bn.png" alt="G72Bn.png" border="0" />
 ./づ~ 🍓"
