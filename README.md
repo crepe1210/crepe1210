@@ -7,7 +7,7 @@ Merci d'avoir visité ma page !
 
 ![dbw13nh-2d95bff5-9d69-4fc2-81b9-7c8a4e71f48b](https://github.com/user-attachments/assets/8da771c1-d652-4bae-ac77-e58917131804) 
 
-## ꩜𖦹༄ 𝑴𝒂𝒊𝒏 𝒊𝒏𝒇𝒐!
+## ꩜𖦹༄ ![dci5adw-a61b97b5-b73f-4056-80dc-a4b64746fcda](https://github.com/user-attachments/assets/0892b64a-2a24-4f05-abe8-56a6164103dd) 𝑴𝒂𝒊𝒏 𝒊𝒏𝒇𝒐!
 ʚɞ 𝒔𝒉𝒆/𝒉𝒆𝒓  
 ![ea96882343f28c6b3e9aff3167036410](https://github.com/user-attachments/assets/1535f218-2606-42e6-beb7-0919038a3a7f)
 
@@ -20,7 +20,7 @@ Merci d'avoir visité ma page !
 ✧ My nicknames that I usually use on different social media outlets: pancake, damilord, glazedcurd (You can call me whatever you want, or by my character's name in PT!)
 
 ✧ I 𝓶𝓲𝓰𝓱𝓽  be sensitive, but I don't take offense at joking insults. And I won't just respond with moralizing, insults and the like. So I don't care what your fetishes are or what kind of person you are (I'm no angel myself, however if you have triggers or DNI factors warn me right away. I won't bring up unpleasant topics on purpose)  
-## ꩜𖦹༄ 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔!
+## ꩜𖦹༄ ![dci5adw-a61b97b5-b73f-4056-80dc-a4b64746fcda](https://github.com/user-attachments/assets/4206b439-25f6-48b7-8913-154bc9f8f177) 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔!
 ୨ৎ 𝖥𝖺𝗇𝖽𝗈𝗆𝗌 & Games ;  
 main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR, Dead Rails  
 
@@ -37,4 +37,8 @@ shellyvision, fossilcleaning, moonshell, chaggie
 
 ୨ৎ 𝖥𝖺𝗏 𝖼𝗈𝗅𝗈𝗋𝗌 ; 💜🩵💙💚  
 
-୨ৎ 𝖥𝖺𝗏 𝖺𝗇𝗂𝗆𝖺𝗅𝗌 ; cats, lions, owls (barn owls), rodents, deers, sharks, dragons (lizards)
+୨ৎ 𝖥𝖺𝗏 𝖺𝗇𝗂𝗆𝖺𝗅𝗌 ; cats, lions, owls (barn owls), rodents, deers, sharks, dragons (lizards)  
+
+୨ৎ 𝖯𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽 𝖿𝗈𝗈𝖽 ; Caesar salad
+![dg66ror-a3e31312-2ab9-4e15-a29f-7a27592f8154](https://github.com/user-attachments/assets/0c236d28-777a-4ec5-af3b-a6db90b6cc71)  
+Avocado toast
