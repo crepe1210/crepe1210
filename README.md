@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=crepe1210&style=for-the-badge&color=800080)
 ## 𝐆𝐫𝐞𝐞𝐭𝐢𝐧𝐠𝐬, 𝐟𝐫𝐢𝐞𝐧𝐝𝐬! >:𝐃
-Also: добро пожаловать друзья!!  
+Also: Добро пожаловать, друзья!!  
 Merci d'avoir visité ma page !  
 
 ![d84rfzh-619bad1a-261f-4ea3-9e8e-3293ad1978b6](https://github.com/user-attachments/assets/0ad2185d-b491-4cfa-b760-a426160470ca) ![d9669fy-b90a84eb-22ba-4442-b6e4-402472426088](https://github.com/user-attachments/assets/cf39c791-e510-4748-8224-9cbe686b6d15) ![d91j57i-c6a8adca-0b19-4adc-a413-101f205640a5](https://github.com/user-attachments/assets/eb150ace-bfa6-4a5c-b77f-febea60da3a8)
@@ -30,4 +30,7 @@ You can always ask about fandoms, I know so many and that's not all!
 
 ୨ৎ 𝖥𝖺𝗏 𝖢𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌! ; Vox, Adam (HH), Blitzø (1st season, HB), Larry & Lawrie, Meeple (BS), Nahida, Scaramouche (GI), Dan Heng, Firefly (HSR), Astro, Glisten, Rodger (DW)
 
-୨ৎ 𝖥𝖺𝗏 𝖲𝗁𝗂𝗉𝗌 ; RadioStatic/Radiosilence (voxxalastor, HH), StaticMoth (voxxvalentino), HuskerDust (huskxangeldust), moonberry (astroxsprout, DW). 
+୨ৎ 𝖥𝖺𝗏 𝖲𝗁𝗂𝗉𝗌 ; RadioStatic/Radiosilence (voxxalastor, HH), StaticMoth (voxxvalentino), HuskerDust (huskxangeldust), ValAngel, moonberry (astroxsprout, DW). 
+
+ships, which I'm neutral about ; moonflower.....  
+shellyvision, fossilcleaning, moonshell
