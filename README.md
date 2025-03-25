@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=crepe1210&style=for-the-badge&color=800080)
 ## 𝐆𝐫𝐞𝐞𝐭𝐢𝐧𝐠𝐬, 𝐟𝐫𝐢𝐞𝐧𝐝𝐬! >:𝐃
 Also: добро пожаловать друзья!!  
 Merci d'avoir visité ma page !  
