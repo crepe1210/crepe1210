@@ -33,8 +33,8 @@ You can always ask about fandoms, I know so many and that's not all!
 ୨ৎ 𝖥𝖺𝗏 𝖲𝗁𝗂𝗉𝗌 ; RadioStatic/Radiosilence (voxxalastor, HH), StaticMoth (voxxvalentino), HuskerDust (huskxangeldust), ValAngel, moonberry (astroxsprout, DW). 
 
 ships, which I'm neutral about ; moonflower.....  
-shellyvision, fossilcleaning, moonshell  
+shellyvision, fossilcleaning, moonshell, chaggie  
 
 ୨ৎ 𝖥𝖺𝗏 𝖼𝗈𝗅𝗈𝗋𝗌 ; 💜🩵💙💚  
 
-୨ৎ 𝖥𝖺𝗏 𝖺𝗇𝗂𝗆𝖺𝗅𝗌 ; cats, lions, owls (barn owls), rodents, deers, sharks
+୨ৎ 𝖥𝖺𝗏 𝖺𝗇𝗂𝗆𝖺𝗅𝗌 ; cats, lions, owls (barn owls), rodents, deers, sharks, dragons (lizards)
