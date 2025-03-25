@@ -22,10 +22,12 @@ Merci d'avoir visité ma page !
 ✧ I 𝓶𝓲𝓰𝓱𝓽  be sensitive, but I don't take offense at joking insults. And I won't just respond with moralizing, insults and the like. So I don't care what your fetishes are or what kind of person you are (I'm no angel myself, however if you have triggers or DNI factors warn me right away. I won't bring up unpleasant topics on purpose)  
 ## ꩜𖦹༄ 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔!
 ୨ৎ 𝖥𝖺𝗇𝖽𝗈𝗆𝗌 & Games ;  
-main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR  
+main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR, Dead Rails  
 
 other ; Brawl Stars, My Student Spirit, Land of Kings (13 Cards), Creatures of Sonaria, Undertale (js know a little), FNAF (same as undertale), FPE (I know a little about the universe and watched the animation), Sky: CotL, CatWar, Lioden (Wolfden), Sekai, Sonic (Sonic Boom, I know some names), PvZ, MLP (ofc), HTTYD  
 
 You can always ask about fandoms, I know so many and that's not all!  
 
 ୨ৎ 𝖥𝖺𝗏 𝖢𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌! ; Vox, Adam (HH), Blitzø (1st season, HB), Larry & Lawrie, Meeple (BS), Nahida, Scaramouche (GI), Dan Heng, Firefly (HSR), Astro, Glisten, Rodger (DW)
+
+୨ৎ 𝖥𝖺𝗏 𝖲𝗁𝗂𝗉𝗌 ; RadioStatic/Radiosilence (voxxalastor, HH), StaticMoth (voxxvalentino), HuskerDust (huskxangeldust), moonberry (astroxsprout, DW). 
