@@ -24,7 +24,7 @@ Merci d'avoir visité ma page !
 ୨ৎ 𝖥𝖺𝗇𝖽𝗈𝗆𝗌 & Games ;  
 main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR, Dead Rails  
 
-other ; Brawl Stars, My Student Spirit, Land of Kings (13 Cards), Creatures of Sonaria, Undertale (js know a little), FNAF (same as undertale), FPE (I know a little about the universe and watched the animation), Sky: CotL, Warrior Cats, WCuE, CatWar, Lioden (Wolfden), Sekai, Sonic (Sonic Boom, I know some names), PvZ, MLP (ofc), HTTYD  
+other ; Brawl Stars, My Student Spirit, Land of Kings (13 Cards), Creatures of Sonaria, Undertale (js know a little), FNAF (same as undertale), FPE (I know a little about the universe and watched the animation), Sky: CotL, Warrior Cats, WCuE, CatWar, Lioden (Wolfden), Sekai, Sonic (Sonic Boom, I know some names), PvZ, MLP (ofc), HTTYD, TADC, Dragon Village Collection
 
 You can always ask about fandoms, I know so many and that's not all!  
 
@@ -37,4 +37,4 @@ shellyvision, fossilcleaning, moonshell
 
 ୨ৎ 𝖥𝖺𝗏 𝖼𝗈𝗅𝗈𝗋𝗌 ; 💜🩵💙💚  
 
-୨ৎ 𝖥𝖺𝗏 𝖺𝗇𝗂𝗆𝖺𝗅𝗌 ; cats, lions, owls (barn owls), rodents
+୨ৎ 𝖥𝖺𝗏 𝖺𝗇𝗂𝗆𝖺𝗅𝗌 ; cats, lions, owls (barn owls), rodents, deers, sharks
