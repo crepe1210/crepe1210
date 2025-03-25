@@ -21,3 +21,6 @@ Merci d'avoir visité ma page !
 
 ✧ I 𝓶𝓲𝓰𝓱𝓽  be sensitive, but I don't take offense at joking insults. And I won't just respond with moralizing, insults and the like. So I don't care what your fetishes are or what kind of person you are (I'm no angel myself, however if you have triggers or DNI factors warn me right away. I won't bring up unpleasant topics on purpose)  
 ## ꩜𖦹༄ 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔!
+୨ৎ 𝖥𝖺𝗇𝖽𝗈𝗆𝗌 ;  
+main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR
+other ; Brawl Stars, My Student Spirit, Land of Kings (13 Cards), Creatures of Sonaria, Undertale (js know a little), FNAF (same as undertale), 
