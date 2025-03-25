@@ -39,6 +39,11 @@ shellyvision, fossilcleaning, moonshell, chaggie
 
 ୨ৎ 𝖥𝖺𝗏 𝖺𝗇𝗂𝗆𝖺𝗅𝗌 ; cats, lions, owls (barn owls), rodents, deers, sharks, dragons (lizards)  
 
-୨ৎ 𝖯𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽 𝖿𝗈𝗈𝖽 ; Caesar salad
+୨ৎ 𝖯𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽 𝖿𝗈𝗈𝖽 ; 🥗 Caesar salad
 ![dg66ror-a3e31312-2ab9-4e15-a29f-7a27592f8154](https://github.com/user-attachments/assets/0c236d28-777a-4ec5-af3b-a6db90b6cc71)  
-Avocado toast
+![dcamkd3-7ace073e-43a3-4b88-bb35-4192dbb8fd79](https://github.com/user-attachments/assets/67afc0b0-485c-4db5-9631-86a7853b70ca) avocado toast, ![dd3gr8o-ead0617d-f30c-4cb9-b832-cc90af7cec7f](https://github.com/user-attachments/assets/909bf6ed-cdfe-4329-8758-2c84a0833e2b) homemade pelmeni (dumplings), ![d2ur62r-a0291941-ae54-4e12-bd29-eeb31f30eddf](https://github.com/user-attachments/assets/0d1fb0b7-98df-4a48-9e99-57e6f13e376f) rolls (sushi), 🫒 olives, ![d9pj4f5-cb680fb4-0e49-4368-b060-e7fb47c2472a](https://github.com/user-attachments/assets/cbe72727-59eb-42ae-abe5-ffeb22e4e21c) shrimp, shrimp roll🍤🥙  
+
+![d80gzvu-77d4e153-507d-4bd2-9488-4178f255c7bc](https://github.com/user-attachments/assets/1a8a94ac-bbc9-493d-89c5-cebe6fde4541)
+
+୨ৎ 𝖮𝗍𝗁𝖾𝗋 𝗁𝗈𝖻𝖻𝗂𝖾𝗌 ; Making PT skins, drawing (skill issues😂), listen to music (I don't have headphones and my relatives won't really appreciate my tastes in music, sooo  
+my fav music authors: 
