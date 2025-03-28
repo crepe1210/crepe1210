@@ -22,9 +22,9 @@ Merci d'avoir visité ma page !
 ✧ I 𝓶𝓲𝓰𝓱𝓽  be sensitive, but I don't take offense at joking insults. And I won't just respond with moralizing, insults and the like. So I don't care what your fetishes are or what kind of person you are (I'm no angel myself, however if you have triggers or DNI factors warn me right away. I won't bring up unpleasant topics on purpose)  
 ## ꩜𖦹༄ ![dci5adw-a61b97b5-b73f-4056-80dc-a4b64746fcda](https://github.com/user-attachments/assets/4206b439-25f6-48b7-8913-154bc9f8f177) 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔!
 ୨ৎ 𝖥𝖺𝗇𝖽𝗈𝗆𝗌 & Games ;  
-main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR, Dead Rails  
+main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR, CRK, Dead Rails, Let Him Go  
 
-other ; Brawl Stars, My Student Spirit, Land of Kings (13 Cards), Creatures of Sonaria, Undertale (js know a little), FNAF (same as undertale), FPE (I know a little about the universe and watched the animation), Sky: CotL, Warrior Cats, WCuE, CatWar, Lioden (Wolfden), Sekai, Sonic (Sonic Boom, I know some names), PvZ, MLP (ofc), HTTYD, TADC, Dragon Village Collection
+other ; Brawl Stars, My Student Spirit, Land of Kings (13 Cards), Creatures of Sonaria, Undertale (js know a little), FNAF (same as undertale), FPE (I know a little about the universe and watched the animation), Sky: CotL, Warrior Cats, WCuE, CatWar, Lioden (Wolvden), Sekai, Sonic (Sonic Boom, I know some names), PvZ, MLP (ofc), HTTYD, TADC, Dragon Village Collection
 
 You can always ask about fandoms, I know so many and that's not all!  
 
@@ -41,10 +41,10 @@ shellyvision, fossilcleaning, moonshell, chaggie
 
 ୨ৎ 𝖯𝗋𝖾𝖿𝖾𝗋𝗋𝖾𝖽 𝖿𝗈𝗈𝖽 ; 🥗 Caesar salad
 ![dg66ror-a3e31312-2ab9-4e15-a29f-7a27592f8154](https://github.com/user-attachments/assets/0c236d28-777a-4ec5-af3b-a6db90b6cc71)  
-![dcamkd3-7ace073e-43a3-4b88-bb35-4192dbb8fd79](https://github.com/user-attachments/assets/67afc0b0-485c-4db5-9631-86a7853b70ca) avocado toast, ![dd3gr8o-ead0617d-f30c-4cb9-b832-cc90af7cec7f](https://github.com/user-attachments/assets/909bf6ed-cdfe-4329-8758-2c84a0833e2b) homemade pelmeni (dumplings), ![d2ur62r-a0291941-ae54-4e12-bd29-eeb31f30eddf](https://github.com/user-attachments/assets/0d1fb0b7-98df-4a48-9e99-57e6f13e376f) rolls (sushi), 🫒 olives, ![d9pj4f5-cb680fb4-0e49-4368-b060-e7fb47c2472a](https://github.com/user-attachments/assets/cbe72727-59eb-42ae-abe5-ffeb22e4e21c) shrimp, shrimp roll🍤🥙 ; drinks ; tea, coffee☕  
+![dcamkd3-7ace073e-43a3-4b88-bb35-4192dbb8fd79](https://github.com/user-attachments/assets/67afc0b0-485c-4db5-9631-86a7853b70ca) avocado toast, ![dd3gr8o-ead0617d-f30c-4cb9-b832-cc90af7cec7f](https://github.com/user-attachments/assets/909bf6ed-cdfe-4329-8758-2c84a0833e2b) homemade pelmeni (dumplings), ![d2ur62r-a0291941-ae54-4e12-bd29-eeb31f30eddf](https://github.com/user-attachments/assets/0d1fb0b7-98df-4a48-9e99-57e6f13e376f) rolls (sushi), 🫒 olives, ![d9pj4f5-cb680fb4-0e49-4368-b060-e7fb47c2472a](https://github.com/user-attachments/assets/cbe72727-59eb-42ae-abe5-ffeb22e4e21c) shrimp, shrimp roll🍤🥙, dates, ; drinks ; tea (with honey or lemon or without sugar), coffee (weak, diluted coffee without sugar) ☕  
 
 ![d80gzvu-77d4e153-507d-4bd2-9488-4178f255c7bc](https://github.com/user-attachments/assets/1a8a94ac-bbc9-493d-89c5-cebe6fde4541)
 
 ୨ৎ 𝖮𝗍𝗁𝖾𝗋 𝗁𝗈𝖻𝖻𝗂𝖾𝗌 ; Making PT skins, drawing (skill issues😂), listen to music (I don't have headphones and my relatives won't really appreciate my tastes in music, sooo  
 my fav musicians ; OG BUDA, FENDIGLOCK, FEDUK, nkeeei, rebzyyx, alex g)
-Fav songs ; all i want is you, I'm so crazy for youuu ᐸ/3, Афтерпати, judo 2, Откровения). I don't do any sports, go to clubs or play musical instruments
+Fav songs ; all i want is you, I'm so crazy for youuu ᐸ/3, Афтерпати, judo 2, Откровения. I don't do any sports, go to clubs or play musical instruments
