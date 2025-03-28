@@ -17,16 +17,16 @@ Merci d'avoir visité ma page !
 
 ✧ I feel a little uncomfortable calling myself by my real name, so only close friends can call me by my real name.  
 
-✧ My nicknames that I usually use on different social media outlets: pancake, damilord, glazedcurd (You can call me whatever you want, or by my character's name in PT!)
+✧ My nicknames that I usually use on different social media outlets: pancake, damilord, glazedcurd, sunriseux, risix (You can call me whatever you want, or by my character's name in PT!)
 
 ✧ I 𝓶𝓲𝓰𝓱𝓽  be sensitive, but I don't take offense at joking insults. And I won't just respond with moralizing, insults and the like. So I don't care what your fetishes are or what kind of person you are (I'm no angel myself, however if you have triggers or DNI factors warn me right away. I won't bring up unpleasant topics on purpose)  
 ## ꩜𖦹༄ ![dci5adw-a61b97b5-b73f-4056-80dc-a4b64746fcda](https://github.com/user-attachments/assets/4206b439-25f6-48b7-8913-154bc9f8f177) 𝑴𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔!
 ୨ৎ 𝖥𝖺𝗇𝖽𝗈𝗆𝗌 & Games ;  
-main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR, CRK, Dead Rails, Let Him Go  
+main ; Hazbin Hotel, Helluva Boss, DW, GI, HSR, CRK, Dead Rails, Let Him Go, W2H(2)  
 
 other ; Brawl Stars, My Student Spirit, Land of Kings (13 Cards), Creatures of Sonaria, Undertale (js know a little), FNAF (same as undertale), FPE (I know a little about the universe and watched the animation), Sky: CotL, Warrior Cats, WCuE, CatWar, Lioden (Wolvden), Sekai, Sonic (Sonic Boom, I know some names), PvZ, MLP (ofc), HTTYD, TADC, Dragon Village Collection
 
-You can always ask about fandoms, I know so many and that's not all!  
+You can always ask about fandoms, I know so many and that's not all! (I don't watch anime and most of the time I watch any subtitled works of art)  
 
 ୨ৎ 𝖥𝖺𝗏 𝖢𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌! ; Vox, Adam (HH), Blitzø (1st season, HB), Larry & Lawrie, Meeple (BS), Nahida, Scaramouche (GI), Dan Heng, Firefly (HSR), Astro, Glisten, Rodger (DW)
 
