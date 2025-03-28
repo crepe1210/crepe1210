@@ -30,9 +30,9 @@ You can always ask about fandoms, I know so many and that's not all! (I don't wa
 
 ୨ৎ 𝖥𝖺𝗏 𝖢𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌! ; Vox, Adam (HH), Blitzø (1st season, HB), Larry & Lawrie, Meeple (BS), Nahida, Scaramouche (GI), Dan Heng, Firefly (HSR), Astro, Glisten, Rodger (DW)
 
-୨ৎ 𝖥𝖺𝗏 𝖲𝗁𝗂𝗉𝗌 ; RadioStatic/Radiosilence (voxxalastor, HH), StaticMoth (voxxvalentino), HuskerDust (huskxangeldust), ValAngel, moonberry (astroxsprout, DW). 
+୨ৎ 𝖥𝖺𝗏 𝖲𝗁𝗂𝗉𝗌 ; RadioStatic/Radiosilence (voxxalastor, HH), StaticMoth (voxxvalentino), HuskerDust (huskxangeldust), ValAngel, moonberry (astroxsprout, DW) (I'm a multishipper) 
 
-ships, which I'm neutral about ; moonflower.....  
+ships, which I'm neutral about ; moonflower (I don't like it much or I like it for fun, ngl).....  
 shellyvision, fossilcleaning, moonshell, chaggie  
 
 ୨ৎ 𝖥𝖺𝗏 𝖼𝗈𝗅𝗈𝗋𝗌 ; 💜🩵💙💚  
