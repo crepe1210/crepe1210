@@ -58,3 +58,7 @@ Fav songs ; all i want is you, I'm so crazy for youuu ᐸ/3, Афтерпати,
 ☆ Been starting to get sociophobic lately (I used to socialize with just one single best friend, so I now avoid blocking procrastination situations), but you can still approach first, I don't mind and would be happy to chat  
 
 ☆ Never hesitate to speak up if there is anything you don't like about communicating with me, I won't pry into your private thoughts and such, but if it concerns me, just tell me or block me right away, no need to drag it out, I don't take offense if I seem weird to you!  
+
+
+![dbw13nh-2d95bff5-9d69-4fc2-81b9-7c8a4e71f48b](https://github.com/user-attachments/assets/8da771c1-d652-4bae-ac77-e58917131804)  
+𝘼𝙡𝙡 𝙞𝙢𝙖𝙜𝙚𝙨 𝙪𝙨𝙚𝙙 𝙞𝙣 𝙗𝙞𝙤 𝙖𝙧𝙚 𝙩𝙖𝙠𝙚𝙣 𝙛𝙧𝙤𝙢 𝙤𝙥𝙚𝙣 𝙛2𝙪 𝙨𝙤𝙪𝙧𝙘𝙚𝙨, 𝙢𝙖𝙞𝙣𝙡𝙮 𝙙𝙚𝙫𝙞𝙖𝙣𝙩𝙖𝙧𝙩
