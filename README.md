@@ -52,9 +52,9 @@ Fav songs ; all i want is you, I'm so crazy for youuu ᐸ/3, Афтерпати,
 
 ![dbw13nh-2d95bff5-9d69-4fc2-81b9-7c8a4e71f48b](https://github.com/user-attachments/assets/8da771c1-d652-4bae-ac77-e58917131804) 
 
-𝙋𝙏
-☆ I'm not a roleplayer and realize I am not good at roleplaying. Feel free to invite me anywhere, but note that I probably won't be actively participating in RPs.
+𝙋𝙏  
+☆ I'm not a roleplayer and realize I am not good at roleplaying. Feel free to invite me anywhere, but note that I probably won't be actively participating in RPs.  
 
-☆ Been starting to get sociophobic lately (I used to socialize with just one single best friend, so I now avoid blocking procrastination situations), but you can still approach first, I don't mind and would be happy to chat
+☆ Been starting to get sociophobic lately (I used to socialize with just one single best friend, so I now avoid blocking procrastination situations), but you can still approach first, I don't mind and would be happy to chat  
 
-☆ Never hesitate to speak up if there is anything you don't like about communicating with me, I won't pry into your private thoughts and such, but if it concerns me, just tell me or block me right away, no need to drag it out, I don't take offense if I seem weird to you!
+☆ Never hesitate to speak up if there is anything you don't like about communicating with me, I won't pry into your private thoughts and such, but if it concerns me, just tell me or block me right away, no need to drag it out, I don't take offense if I seem weird to you!  
